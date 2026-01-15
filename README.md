@@ -1,10 +1,10 @@
 # 💫 About Me:
 Motivated and self-learning Practical IT and hardware professional with hands-on experience in electrical work, mobile repairing, and computer hardware through own shop.
-Currently shifting towards AI and software-side work, using AI assistants and automation tools to improve productivity, solve problems, and automate repeated online tasks. Seeking entry-level or remote opportunities where continuous growth learning opportunities and skills.
-I am also familiar with cryptocurrency, exchanges, and wallets, and have personal experience in crypto investing.
-Own Business
+Currently shifting towards AI and software-side work, using AI assistants and automation tools to improve productivity, solve problems, and automate repeated online tasks. Seeking entry-level or remote opportunities where continuous growth learning opportunities and skills.<br>
+I am also familiar with cryptocurrency, exchanges, and wallets, and have personal experience in crypto investing.<br>
+Own Business<br>
 Experience running small-scale manufacturing and assembly electric products own business.
-Supplier searching, comparison and raw material sourcing. Basic pricing, cost awareness and customer handling..<br>
+Supplier searching, comparison and raw material sourcing. Basic pricing, cost awareness and customer handling.<br>
 
 
 ## 🌐 Socials:
