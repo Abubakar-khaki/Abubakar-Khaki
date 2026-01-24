@@ -1,5 +1,5 @@
 # 💫 About Me:
-Motivated and self-learning Practical IT and hardware professional.Currently shifting towards AI and software-side work, using AI assistants and automation tools to improve productivity, solve problems, and automate repeated online tasks. Seeking entry-level or remote opportunities where continuous growth learning opportunities and skills.<br>
+Motivated and self-learning Practical IT and hardware professional. Currently shifting towards AI and software-side work, using AI assistants and automation tools to improve productivity, solve problems, and automate repeated online tasks. Seeking entry-level or remote opportunities where continuous growth learning opportunities and skills.<br>
 I am also familiar with cryptocurrency, blockchain explore, exchanges, wallets and have personal experience in crypto investing.<br>
 Own Business:<br>
 Experience running small-scale manufacturing and assembly electric products own business.
